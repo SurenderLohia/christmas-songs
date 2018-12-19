@@ -2,7 +2,7 @@
 
 ## [Joy to the world](https://www.youtube.com/watch?v=30OaM6b48k8)
 
-Joy to the world! The Lord is come!  
+Joy to the world! The Lord has come!  
 Let earth receive her King;  
 Let every heart prepare Him room,  
 And heaven and nature sing,  
@@ -25,7 +25,7 @@ O 'er the fields we go, laughing all the way.
 Bells on bob-tails ring,  
 making spirits bright.  
 What fun it is to ride and sing  
-a sleighing song tonight, oh!  
+a sleighing song tonight, hey 
 
 Jingle bells, jingle bells, jingle all the way.  
 Oh what fun it is to ride  
@@ -33,12 +33,30 @@ in a one-horse open sleigh, hey!
 Jingle bells, jingle bells, jingle all the way.  
 Oh what fun it is to ride in a one-horse open sleigh!  
 
-Now the ground is white, go it while you 're young.  
-Take the girls tonight, sing this sleighing song.  
-Get a bob-tailed bay,  
-two-forty for his speed,  
-and hitch him to an open sleigh  
-and you will take the lead, oh!  
+A day or two ago
+The story I must tell
+I went out on the snow
+And on my back I fell
+A gent was riding by
+In a one-horse open sleigh
+He laughed as there I sprawling lie
+But quickly drove away 
+
+Jingle bells, jingle bells
+Jingle all the way
+Oh, what fun it is to ride
+In a one-horse open sleigh, hey
+Jingle bells, jingle bells
+Jingle all the way
+Oh, what fun it is to ride
+In a one-horse open sleigh
+
+## [We wish you a merry christmas](https://www.youtube.com/watch?v=g-OF7KGyDis)
+
+We wish you a merry Christmas,  
+We wish you a merry Christmas,  
+We wish you a merry Christmas,  
+and a happy New Year!
 
 ## [Silent Night](https://www.youtube.com/watch?v=nEH7_2c644Q)
 
@@ -67,30 +85,6 @@ The cattle are lowing, the baby awakes,
 but little Lord Jesus, no crying He makes.  
 I love Thee, Lord Jesus, look down from  
 the sky and stay by my cradle till morning is nigh.  
-
-Be near me, Lord Jesus, I ask Thee to stay.  
-Close by me forever and love me, I pray.  
-Bless all the dear children in Thy tender care  
-and take us to heaven to live with Thee there.  
-
-## [We wish you a merry christmas](https://www.youtube.com/watch?v=g-OF7KGyDis)
-
-We wish you a merry Christmas,  
-We wish you a merry Christmas,  
-We wish you a merry Christmas,  
-and a happy New Year!  
-
-## [Santa Claus is coming to town](https://www.youtube.com/watch?v=Qrl1GlnHWjI&t=1737s)
-
-When Santa comes to my house,  
-I would like to peek.  
-But I know he’ll never come  
-Until I’m fast asleep!  
-
-When Santa comes to my house,  
-I would like to peek.  
-But I know he’ll never come  
-Until I’m fast asleep!  
 
 ## [Go tell it on the mountain](https://www.youtube.com/watch?v=NsX3tYbai1Q)
 
