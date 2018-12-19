@@ -114,25 +114,7 @@ And I said GO,
 Go tell it on the mountain  
 Over the hills and everywhere  
 Go tell it on the mountain  
-That Jesus Christ is born  
-
-Down in a lowly manger  
-Our humble Christ was born  
-And God sent us salvation  
-That blessed this Christmas morn.  
-
-And I said GO,  
-
-Go tell it on the mountain  
-Over the hills and everywhere  
-Go tell it on the mountain  
-That Jesus Christ is born  
-
-Go tell it on the mountain  
-Over the hills and everywhere  
-Go tell it on the mountain  
-That Jesus Christ is born  
-That Jesus Christ is born  
+That Jesus Christ is born   
 
 
 
