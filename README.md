@@ -33,23 +33,23 @@ in a one-horse open sleigh, hey!
 Jingle bells, jingle bells, jingle all the way.  
 Oh what fun it is to ride in a one-horse open sleigh!  
 
-A day or two ago
-The story I must tell
-I went out on the snow
-And on my back I fell
-A gent was riding by
-In a one-horse open sleigh
-He laughed as there I sprawling lie
+A day or two ago  
+The story I must tell  
+I went out on the snow  
+And on my back I fell  
+A gent was riding by  
+In a one-horse open sleigh  
+He laughed as there I sprawling lie  
 But quickly drove away 
 
-Jingle bells, jingle bells
-Jingle all the way
-Oh, what fun it is to ride
-In a one-horse open sleigh, hey
-Jingle bells, jingle bells
-Jingle all the way
-Oh, what fun it is to ride
-In a one-horse open sleigh
+Jingle bells, jingle bells  
+Jingle all the way  
+Oh, what fun it is to ride  
+In a one-horse open sleigh, hey  
+Jingle bells, jingle bells  
+Jingle all the way  
+Oh, what fun it is to ride  
+In a one-horse open sleigh  
 
 ## [We wish you a merry christmas](https://www.youtube.com/watch?v=g-OF7KGyDis)
 
@@ -74,7 +74,7 @@ Heavenly hosts sing Alleluia!
 Christ, the Saviour is born,  
 Christ, the Saviour is born.  
 
-## [Away in the manager](https://www.youtube.com/watch?v=AnwO_0DrpCk)
+## [Away in the manger](https://www.youtube.com/watch?v=AnwO_0DrpCk)
 
 Away in a manger, no crib for a bed,  
 the little Lord Jesus laid down His sweet head.  
