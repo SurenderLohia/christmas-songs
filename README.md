@@ -88,7 +88,6 @@ the sky and stay by my cradle till morning is nigh.
 
 ## [Go tell it on the mountain](https://www.youtube.com/watch?v=NsX3tYbai1Q)
 
-Go Tell it On the Mountain  
 Go tell it on the mountain  
 Over the hills and everywhere  
 Go tell it on the mountain  
